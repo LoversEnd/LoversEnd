@@ -7,6 +7,6 @@
 
 <p align="center"> im fine w free c+h dont even ask just go ahead
 
-<p align="center">
+<p align="center"> i dont hide ppl so if u cant see me then URE the one who hid me
 
 <p align="center"> i refer as chars as me, and im them. dont separate me from myself thanks
